@@ -1,0 +1,1 @@
+In this reciepe I will teach you how to make strawberry smoothie
